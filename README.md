@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sam1975yt1 
-- 👀 I’m interested in Games Making 
+- 👀 I’m interested in Making Games
 - 🌱 I’m currently learning 7 Grade
 - 💞️ I’m looking to collaborate on No One :(
 
